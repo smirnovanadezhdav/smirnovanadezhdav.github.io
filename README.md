@@ -1,2 +1,1 @@
-# smirnovanadezhdav.github.io
-pИНДИВ
+
